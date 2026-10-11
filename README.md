@@ -59,12 +59,12 @@ Using my enterprise experience for advanced software research and development in
 > *"You take ownership of your own actions and results, focusing on delivering meaningful outcomes with attentiveness to urgent priorities."* - **SAP "We Take Charge" Award**.
 
 * Recieved **4 SAP Peer-to-Peer Awards:** Leadership, Ownership, Curiosity, and Collaboration.
-* Commended in HCAM Quarterly "All Employee meeting" for the successful production launch for an internal product for the GCP team.
+* Commended in Department Quarterly "All Employee" meeting for the successful production launch for an internal product for the GCP team.
 
 <br>
 
 ### 🌐 Connect with me: &nbsp;
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://uk.linkedin.com/in/adanswe)
-[![Email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:adan.uk05@email.com)
+[![Email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:adan.uk05@gmail.com)
 
 <br>
